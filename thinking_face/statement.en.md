@@ -1,0 +1,1 @@
+Good GTFs always have trivia tasks. 

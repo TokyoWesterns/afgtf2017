@@ -1,0 +1,1 @@
+[stegoshka.png](https://tokyowesterns.github.io/afgtf2017/stegoshka.png-3326c776ea706ed6abb36e3eeedc8aaadba10b36fe198e4cb9ed7279709fb39b)
